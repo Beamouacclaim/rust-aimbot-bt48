@@ -1,4 +1,4 @@
-
+Top rust-traps ESP é o melhor rust-traps ESP com mira automática e modo deus. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
